@@ -1,6 +1,6 @@
 # BSQ//42PARIS
 
-I have only one thing to say, "DEMINEUR" !
+I have only one thing to say, "DEMINEUR !" 🖕🖕 
 
 ## Usage :
 
